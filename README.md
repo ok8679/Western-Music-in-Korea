@@ -33,6 +33,16 @@ Eckert was a German musician who studied military music. He composed Japanese na
 Modern Western-style schools were established by missionaries in 1885. (Baejae Academy and Ewha School)
 Students were taught in English even though they did not understand it. Textbooks were drawn from the Bible, and English hymns. Protestant hymns played a significant role in introducing Western music in the 19th century to 20th century in Joseon. 
 
+# Piano
+
+The piano was brought around 1910. Japanese pianist Kokura, who held the first solo concert in Joseon in 1916, had become a symbol of superiority; naturally, the piano became a noble instrument. The concept of musical hegemony was distributed, and the popularity of traditional music started to decline. 
+
+# Gramophone/Phonograph
+
+
+# Adopting Western Hegemony by Music
+
+많은 학자들이 서양음악
 
 
 ## Image
